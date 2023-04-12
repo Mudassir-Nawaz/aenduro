@@ -47,5 +47,5 @@ For adults only. Do not exceed daily dose. Keep out of the reach of children und
 Rhodiola and Ginseng counteract physical and mental fatigue. Malpighia has a supporting and restorative effect. Rhodiola promotes normal mood.
 Storage: Store in the original container, tightly closed, in a cool place away from light. Tightly reseal after using.
 
-Ready to try AEnduro benefits? Check this out:
-https://www.eneksia.com/shop/Ænduro
+Ready to try AEnduro benefits? Check this out: <br>
+https://www.eneksia.com/product-page/%C3%A6nduro
