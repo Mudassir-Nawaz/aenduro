@@ -2,7 +2,7 @@
 title: Aenduro
 ---
 
-Ænduro is made from a specially formulated blend of active ingredients, including extracts of [Rhodiola Rosea L. ](https://www.dioscorides.org/blog/rhodiola-blog) and [Panax Ginseng](https://www.dioscorides.org/blog/ginseng-blog), which combat physical and mental fatigue. Rhodiola also promotes normal mood. Vitamins [B6, B9](https://www.dioscorides.org/blog/vitamins-B-blog) and C [the latter of plant origin, from Acerola, which has a supporting and restorative action](https://www.dioscorides.org/blog/acerola-blog) and omega-3 fatty acids [of plant origin, from Cannabis sativa seeds](https://www.dioscorides.org/blog/cannabis-blog), in perfect balance, complete the formula. Designed to help you achieve maximum performance, AEnduro maintains your energy and alertness throughout the day. 
+Ænduro is made from a specially formulated blend of active ingredients, including extracts of [Rhodiola Rosea L. ](https://www.dioscorides.org/blog/rhodiola-blog) and [Panax Ginseng](https://www.dioscorides.org/blog/ginseng-blog), which combat physical and mental fatigue. Rhodiola also promotes normal mood. Vitamins [B6, B9](https://www.dioscorides.org/blog/vitamins-B-blog) and [C](https://www.dioscorides.org/blog/acerola-blog) the latter of plant origin, from [Acerola](https://www.dioscorides.org/blog/acerola-blog), which has a supporting and restorative action and omega-3 fatty acids of plant origin, from [Cannabis sativa seeds](https://www.dioscorides.org/blog/cannabis-blog), in perfect balance, complete the formula. Designed to help you achieve maximum performance, AEnduro maintains your energy and alertness throughout the day. 
 
 #### Simply take AEnduro with water.
 
